@@ -1,0 +1,1 @@
+I deserve to get a grades "B" in this class and get the grade  "B" for ( week 6 jouranal) because I participate in the class by discussion with the class group and share information with them thats make me gain more knowledge about Linux t, and hats make more comfortable to work with Linux
